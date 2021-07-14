@@ -1,1 +1,1 @@
-# C-26-MasterChef-Junior
+This recipe is about how to make the the vanilla cupcakes
